@@ -30,8 +30,4 @@ Teak (_Tectonic Grandis_) was introduced in Central America in 1926. Banana and 
 
 Novelteak owns more than 19.000 hectares of land and 7.000 of them are ded`enter code here`icated to teak plantations that produce around 40-50k m3 of [FSC](https://www.novelteak.com/whatwedo)® certifications.
 
-### Novelteak Plantations in Central America
-
-![](https://images.squarespace-cdn.com/content/v1/546e3c8de4b0de4b09f951e4/adf88587-8a0f-4502-a6ca-c0ca42db0236/Mapa+Jaime.jpg)
-
 ### Think Teak !
